@@ -6,4 +6,4 @@
 
 ![](https://media.tenor.com/R523PrjmJ_4AAAAM/spdegguk-cloudvmink.gif).
 
-![]https://media.tenor.com/mef2BHOZe1cAAAAM/vou-reprovar-em-sd.gif).
+![]
