@@ -6,6 +6,6 @@
 
 ![](https://media.tenor.com/R523PrjmJ_4AAAAM/spdegguk-cloudvmink.gif).
 
-![](https://github.com/felipe-dos-santos-mendes/felipe-dos-santos-mendes/assets/143807567/1cac7aa5-7df8-4db0-adf4-fc224b3a3c6b)
+![](https://media1.tenor.com/m/YIUbUoKi8ZcAAAAd/sesame-street-kermit-the-frog.gif)
 
-![](https://media1.tenor.com/m/mJ_Og97j5WwAAAAC/chipi-chapa.gif).
+![]https://media1.tenor.com/m/YIUbUoKi8ZcAAAAd/sesame-street-kermit-the-frog.gif).
